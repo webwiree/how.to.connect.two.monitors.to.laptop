@@ -1,6 +1,6 @@
 # how to connect two monitors to laptop
 
-[![how to connect two monitors to laptop](get-detail.png)](https://computersolve.com/how-to-connect-two-monitors-to-laptop/)
+[![how to connect two monitors to laptop](get-detail.png)](https://icncomputer.com/how-to-connect-two-monitors-to-laptop/)
 
 There are a lot of benefits to having dual monitors on your laptop.
 
